@@ -1,0 +1,2 @@
+# Schloqueso-
+Tendencias 
